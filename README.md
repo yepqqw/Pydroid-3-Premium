@@ -4,8 +4,8 @@
  
 支持6.4_arm64版本与7.2_arm64版本
 
-蓝奏云:
-https://whatthefuck.lanzoue.com/il3uT20rz38b
+123云盘:
+[https://whatthefuck.lanzoue.com/il3uT20rz38b](https://www.123pan.com/s/KhjA-M44g3.html)
 
 # 截图:
 |                    1                     |                    2                     |                    3                     |
