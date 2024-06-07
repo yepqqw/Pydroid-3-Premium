@@ -2,10 +2,10 @@
  
 解锁Pydroid 3
  
-支持6.4_arm64版本与7.2_arm64版本
+支持6.4版本与7.2版本
 
-123云盘:
-[https://whatthefuck.lanzoue.com/il3uT20rz38b](https://www.123pan.com/s/KhjA-M44g3.html)
+链接:
+[123云盘](https://www.123pan.com/s/KhjA-M44g3.html)
 
 # 截图:
 |                    1                     |                    2                     |                    3                     |
