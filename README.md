@@ -2,7 +2,7 @@
  
 解锁Pydroid 3
  
-支持6.4版本与7.2版本
+支持6.4版本与7.52版本
 
 链接:
 [123云盘](https://www.123pan.com/s/KhjA-M44g3.html)
